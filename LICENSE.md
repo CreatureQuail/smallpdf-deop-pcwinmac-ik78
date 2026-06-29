@@ -1,4 +1,4 @@
-# 
+# Sécurisé Smallpdf Desktop plugins pour Mac OS | Ultime Smallpdf Desktop plugins pour PC Windows. Avec facturation et suivi des dépenses — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
